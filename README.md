@@ -29,9 +29,3 @@ own file:
 
 > _Note: the index is not yet built. Automating it — so it rebuilds itself
 > whenever a recipe is added — is planned for the future._
-
-## License
-
-Released under LICENSE — do
-whatever you like with these recipes, no attribution required, and no warranty.
-See the `LICENSE` file for details.
