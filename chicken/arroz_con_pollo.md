@@ -21,12 +21,11 @@ This one-pot dish comes from Martha's book *One Pot: 120+ Easy Meals from Your S
 - *1 1/2 cups* short-grain rice, preferably Valencia
 - *3 cups* low-sodium chicken broth, plus more if needed
 - *1/2 cup* pimiento-stuffed green olives, drained
+- *1 1/2 cups* frozen peas
 
 ---
 
 1. Preheat oven to 375 degrees. In a bowl, combine wine and saffron.
 2. Season chicken with salt and pepper. In a large Dutch oven or braiser, heat oil over medium-high. Add chicken, skin side down; cook until browned, 6 to 7 minutes. Flip and cook 2 minutes more; transfer to a plate.
 3. Drain all but 2 tablespoons fat. Add onion, bell pepper, and garlic; cook, stirring often, until translucent, 4 minutes. Add tomato and cook, stirring often, until softened, about 5 minutes. Stir in wine-saffron mixture, bay leaves, 1/2 teaspoon salt, and 1/4 teaspoon pepper. Cook until wine is nearly evaporated, 5 to 8 minutes.
-4. Stir in rice, broth, and olives. Nestle chicken into rice, skin side up. Bring to a simmer, cover, and transfer to oven. Cook until liquid is absorbed and chicken is cooked through, 25 to 30 minutes. Let stand 10 minutes before serving.
-
-**Note:** If possible, salt the chicken ahead of time — 30 minutes at room temperature, or up to 8 hours refrigerated — for better flavor and texture.
+4. Stir in rice, broth, and olives. Nestle chicken into rice, skin side up. Bring to a simmer, cover, and transfer to oven. Cook until liquid is absorbed and chicken is cooked through, 25 to 30 minutes. Scatter frozen peas over the chicken and rice, return the lid, and let stand 10 minutes before serving.
