@@ -14,14 +14,14 @@ Easy one-bowl baked oatmeal with a protein boost. Adapted from [Eating Bird Food
 - *1/4 cup* peanut butter, or any nut butter
 - *2* large eggs
 - *3 tablespoons* maple syrup, optional
-- *1 tablespoon* neutral oil,
+- *1 tablespoon* neutral oil
 - *1/4 teaspoon* salt
-- *1/2 cup* fresh blueberries, plus more for topping
+- *1/2 cup* frozen berries
 ---
 
 Preheat oven to 375°F. Grease an 8-inch square baking dish.
 
-Mix oats, protein powder, milk, peanut butter, eggs, maple syrup (if using), oil and salt in a large bowl. Stir in blueberries and pour into the dish. Top with extra blueberries.
+Mix oats, protein powder, milk, peanut butter, eggs, maple syrup (if using), oil and salt in a large bowl. Stir in berries and pour into the dish.
 
 Let the mixture sit 30 minutes before baking, if possible.
 
